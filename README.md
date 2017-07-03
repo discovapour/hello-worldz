@@ -1,2 +1,4 @@
 # hello-worldz
-Lets mentate
+Let us mentate
+Let our mind's eye dilate 
+COLLEGE!
